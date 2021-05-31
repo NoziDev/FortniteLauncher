@@ -1,6 +1,6 @@
 ⛔ BYPASS Easy Anti-Cheat
 
-#INFORMATION
+# INFORMATION
 ---
 ⚠ I SELL CHEAT FORTNITE 
 ---
